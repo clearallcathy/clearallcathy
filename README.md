@@ -1,16 +1,25 @@
-## Hi there 👋
+  <img width="593" height="493" alt="image" src="https://github.com/user-attachments/assets/e1d45caa-c23e-45c5-a6db-c5f7484d2308" />
 
-<!--
-**clearallcathy/clearallcathy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+... 𓊆𓏴ྀི𓏴𓏴𓊇  | ͜͝          ⚰️ ᩙ◞        ˚       ✙ ִִ𓈒    ︵ ͜◞ ͜𝒢𓍢
 
-Here are some ideas to get you started:
+<img width="1000" height="10" alt="image" src="https://github.com/user-attachments/assets/bb2cb32c-10d4-4646-b6c9-9e684d31ce18" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+   
+  
+
+
+˚̣̣̣✚     🕊️        lacey         𓂅⠀⏝ ྀི⏝ ྀ <img width="250" height="244" alt="image" src="https://github.com/user-attachments/assets/18a0890b-fbdf-4fa2-92b3-60d5edcf1df7" />
+
+
+
+ 
+   ۪۪wip strawpage , C + H is encouraged . i don't talk much , unless if im talked 2 first ( main acc is childwithaflask )
+  ​ 
+_ _
+
+<img width="332" height="430" alt="image" src="https://github.com/user-attachments/assets/a6112fa3-4bbf-4ad7-94c1-aa004d51309c" />
+
+
+
+
