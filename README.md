@@ -20,7 +20,7 @@
 
 <img width="332" height="430" alt="image" src="https://github.com/user-attachments/assets/a6112fa3-4bbf-4ad7-94c1-aa004d51309c" />
 
- ۪۪wip strawpage , C + H is encouraged . i don't talk much , unless if im talked 2 first ( main acc is childwithaflask )
+ ۪۪C + H is encouraged . i don't talk much , unless if im talked 2 first ( main acc is childwithaflask )
   ​ 
 
 
